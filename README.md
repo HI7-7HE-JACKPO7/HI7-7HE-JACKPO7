@@ -5,6 +5,6 @@ i prefer you to whisper me if you wanna talk cus honestly i'm usually either in 
 
 
 
-i don't mind shippers interacting but please don't come up 2 me and talk about doublefedora or past!ichance in detail, goes double if i don't know you well. my isaac and i find our past lives together an uncomfortable topic due to the circumstances of our canon. idk just don't be weird about ichance in generally actually 👎   
+i don't mind shippers interacting but please don't come up 2 me and talk about doublefedora or past!ichance in detail, goes double if i don't know you well. my isaac and i find our past lives together an uncomfortable topic due to the circumstances of our canon. idk just don't be weird about ichance in general actually 👎   
 i still do like toughluck, paycheck and luckyhacker specifically as platonic pairings cus it's cute   
 doubles please iwc ty
